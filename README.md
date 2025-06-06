@@ -5,5 +5,5 @@
                                C+H freely - DO NOT COPY OR TAKE INSPO - interact with me 
                                                Chinese Canadian - ENG/FR
                                         Majesticduo CEO and big Cash Masons lover
-                                           Duncan MDP and UU!Spoke fictkin 
+                                            Duncan MDP and UU!Spoke fictkin 
  
