@@ -1,6 +1,6 @@
                                                    Trusted - Oli - Duncan
                                                    
-![Image](https://github.com/user-attachments/assets/38f01968-feae-49e2-8ae6-ecfbb703bc26)
+![Image](https://github.com/user-attachments/assets/bcb16337-547e-420b-82c3-cc2996bc59d9)
 **TrustedCreators/TrustedCreators** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
 Here are some ideas to get you started:
