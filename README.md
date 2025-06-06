@@ -5,4 +5,4 @@
                               C+H freely - DO NOT COPY OR TAKE INSPO - interact with me !
                                                   Canadian - ENG/FR
                                        Majesticduo CEO and big Cash Masons lover
-                                      ! [Link] (https://untrusteddestroyers.straw.page)
+                                      
