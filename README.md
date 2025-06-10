@@ -6,5 +6,5 @@
                                                Chinese Canadian - ENG/FR
                                         Majesticduo CEO and big Cash Masons lover
                                             Duncan MDP and UU!Spoke fictkin 
-                                      Green names **can** interact during dniuf status ^^
+                                     Green names *can* interact during DNIUF status 
  
