@@ -8,4 +8,6 @@
                                            Majesticduo CEO and big Cash Masons lover
                                                Duncan MDP and UU!Spoke fictkin 
                                         Green names *can* interact during DNIUF status 
+                                         Matching is ok !! esp if its deviousduo.,.,
+                                      Feel free to c+h whenever if ur a green name ^_^
  
