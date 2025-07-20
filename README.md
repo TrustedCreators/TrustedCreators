@@ -6,7 +6,7 @@
                                   C+H freely - DO NOT COPY OR TAKE INSPO - interact with me 
                                                   Chinese Canadian - ENG/FR
                                            Majesticduo CEO and big Cash Masons lover
-                                               Duncan MDP and UU!Spoke fictkin 
+                                               Duncan MDP, UU!Spoke and Mapic fictkin 
                                         Green names *can* interact during DNIUF status 
                                          Matching is ok !! esp if its deviousduo.,.,
                                        Feel free to c+h whenever if ur a green name ^_^
