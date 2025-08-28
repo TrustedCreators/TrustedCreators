@@ -10,5 +10,7 @@
                                         Green names *can* interact during DNIUF status 
                                            Matching is ok !! esp if its deviousduo
                                        Feel free to c+h whenever if ur a green name ^_^
+                               I love long cuds !! yay ^_^ | do not cover unless friends pls
             Im kind of shy to add people so I wont usually request first, BUT if u request I will most likely accept it
+        
  
