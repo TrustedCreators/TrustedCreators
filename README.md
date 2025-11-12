@@ -12,7 +12,7 @@
                                        Feel free to c+h whenever if ur a green name ^_^
                                I love long cuds !! yay ^_^ | do not cover unless friends pls
             Im kind of shy to add people so I wont usually request first, BUT if u request I will most likely accept it
-                      Eavesdropper..,, I am rlly nosy so I will eavesdrop on conversations sometimes >_<
-                          VERY sensitive and horrible tone indication, mean humour is NOT appreciated
-                             If I'm Zzz'ing im most likely sleeping/trying to sleep and will dc
+                       Eavesdropper..,, I am rlly nosy so I will eavesdrop on conversations sometimes >_<
+                           VERY sensitive and horrible tone indication, mean humour is NOT appreciated
+                              If I'm Zzz'ing im most likely sleeping/trying to sleep and will dc
  
