@@ -1,9 +1,9 @@
 <p align="center">Trusted - Jodi - Oli</p>
 <p align="center">ac: ME !!!</p>
   <p align="center">
-<img src="https://komarev.com/ghpvc/?username=TrustedCreators&label=DEVIOUS+people"/>
+<img src="![](https://komarev.com/ghpvc/?username=your-github-username&color=red&label=DEVIOUS+people)/>
 <p align="center">
-                                                     
+                                             
 ![Image](https://github.com/user-attachments/assets/bcb16337-547e-420b-82c3-cc2996bc59d9)
 
 <p align="center">
