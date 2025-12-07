@@ -1,8 +1,13 @@
-                                                  Trusted - Oli - Jodi
+<p align="center">Trusted - Oli - Jodi</p>
                                                         ac: ME !!!
                                                      
 ![Image](https://github.com/user-attachments/assets/bcb16337-547e-420b-82c3-cc2996bc59d9)
 
+<p align="center">
+  <a href="https://github.com/kittinan/spotify-github-profile">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31opjmhdhfk62csl2bzm6f5jkfyy&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=53b14f&bar_color_cover=true">
+  </a>
+</p>
                                   C+H freely - DO NOT COPY OR TAKE INSPO - interact with me 
                                                   Chinese Canadian - ENG/FR
                                        Majesticduo CEO and big Cash Masons and CBD lover
