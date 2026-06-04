@@ -11,7 +11,6 @@
 <p align="center">
 <img src="https://komarev.com/ghpvc/?username=TrustedCreators&label=deviousers&color=CC0A0A">
 </p>
-</p> im too lazy to fix this bruh
                                              
 ![Image](https://github.com/user-attachments/assets/bcb16337-547e-420b-82c3-cc2996bc59d9)
 
@@ -25,7 +24,6 @@
 <p align="center">Majesticduo CEO and big Cash Masons and CBD lover</p>
 <p align="center">Duncan MDP, UU!Spoke, Mapic, Jodio Joestar heavykin</p>
 <p align="center">Feel free to c+h whenever if ur a green name ^_^</p>
-<p align="center">I love long cuds !! yay ^_^ | do not cover unless friends pls</p>
 <p align="center">Im kind of shy to add people so I wont usually request first, BUT if u request I will most likely accept it</p>
 <p align="center">Kinda sensitive and horrible tone indication, mean humour is NOT appreciated unless stated otherwise ok</p>
 <p align="center">Shy and dry at first but i swear i get better and easier to talk to later</p>
