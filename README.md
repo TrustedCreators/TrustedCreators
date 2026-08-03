@@ -1,4 +1,4 @@
-<p align="center">Trusted - Jodi - Oli</p>
+<p align="center">Trusted - Io - Jodi</p>
 <p align="center">
   <a href="https://devious-duo.straw.page/">Strawpage</a> .
   <a href="https://trusted.atabook.org/">Atabook</a> .
